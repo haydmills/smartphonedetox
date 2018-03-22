@@ -29,5 +29,10 @@ Day 7 - Congrats and next steps
 Congrats and next steps in your new less addicted life
 - Read more about addiction here are the go to books
 
-
-
+Resources
+- For teachers and educators
+- For students and young millenials
+- For the +40 crowd
+- For the designers and developers
+- For the CEO
+- For the medical professionals
