@@ -36,3 +36,16 @@ Resources
 - For the designers and developers
 - For the CEO
 - For the medical professionals
+
+The list of techniques to break up with your phone
+- Create speed bumps - Put a rubber band around your phone as a physical reminder to pause, or set a lock screen image that asks you to confirm that you really want to proceed.
+- Pay attention to your body - What’s your posture like? How’s your breathing? Is whatever you’re doing on your phone making you feel good? Do you want to be using it right now?
+- Practice phone seperation - Leave your phone at home while going for a walk or going to the store. Increase the challenges as you go.
+- Use technology to protect yourself from technology - Apps like Moment or Quality Time are good ones to start. 
+- Use the sight of other people on their phones as a reminder of your own intentions
+- Turn your phones color off and go into greyscale mode
+- Get existential about it - If all else fails, consider your own mortality. How many people on their deathbeds do you think are going to say, “I wish I’d spent more time on Facebook”?
+- Delete all social media apps
+- Turn off all notifications
+- Delete email from your phone
+- Buy a dumbphone and use it on the weekends
