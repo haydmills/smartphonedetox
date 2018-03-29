@@ -52,3 +52,4 @@ The list of techniques to break up with your phone
 - Turn off all notifications
 - Delete email from your phone
 - Buy a dumbphone and use it on the weekends
+- Heel/toe click... when walking up or down stairs do the heel/toe technique in order to safely walk up and down the stairs while texting without falling
