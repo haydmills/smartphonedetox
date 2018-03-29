@@ -8,7 +8,7 @@ Day 1 - Why a smartphone detox?
 Get an idea of how bad your addiction is
 - Quick summary of where we are at as a tech obsessed people
 - Explanation of the 7 day program and intended outcomesd
-- Take the smartphone addiction quiz
+- Take the smartphone addiction quiz - https://goo.gl/forms/lsTgiMwv6dxlZOXm2
 - Download the apps (Freedom, Checky, Forest, Moment)
 
 Day 2 - Learn
