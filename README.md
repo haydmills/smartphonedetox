@@ -1,4 +1,7 @@
 # Smartphone Detox
+
+smartphonedetox.com
+
 A free, 7 day smartphone detox online program
 
 Day 1 - Why a smartphone detox?
