@@ -53,3 +53,4 @@ The list of techniques to break up with your phone
 - Delete email from your phone
 - Buy a dumbphone and use it on the weekends
 - Heel/toe click... when walking up or down stairs do the heel/toe technique in order to safely walk up and down the stairs while texting without falling
+- Depersonalize your phone (remove cute stickers, screensavers, quotes, etc) so you are not so closely tied to it.
