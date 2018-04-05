@@ -2,6 +2,8 @@
 
 smartphonedetox.com
 
+Need landing page that explains the project and need a about/mission/our beliefs page - like Odin Project https://www.theodinproject.com/about
+
 A free, 7 day smartphone detox online program
 
 Day 1 - Why a smartphone detox?
