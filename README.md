@@ -56,3 +56,14 @@ The list of techniques to break up with your phone
 - Buy a dumbphone and use it on the weekends
 - Heel/toe click... when walking up or down stairs do the heel/toe technique in order to safely walk up and down the stairs while texting without falling
 - Depersonalize your phone (remove cute stickers, screensavers, quotes, etc) so you are not so closely tied to it.
+- Rubberband reminder around your smartphone
+- Screensaver reminder to use your phone less
+- Delete all social media apps from your phone and only use them on your laptop
+- Use a password manager to keep all your passwords and never have to worry about deleting apps because they are addicting ever again
+- Find or buy a standalone alarm clock instead of using your smartphone alarm clock
+- Catherine Price does this "I have a bed for my phone. Like, with sheets and everything. (And charging cables.)  Every evening after dinner, I tuck in my phone, and I don’t look at again till after my first cup of coffee in the morning."
+- Make your own phone "sleeping bad" or ziplock bag or smartphone locker
+- Set auto-text responses for all your text messages
+- Add offline triggers to your life... put a book around your bed instead of your phone, etc
+- No phone zone signs for restaraunts 
+- No phone zone for bathrooms
